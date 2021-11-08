@@ -1,2 +1,2 @@
 # ABSEN KELAS
-- Absen 18-08-21![foto](https://github.com/fadhil050804/absen/raw/main/WhatsApp%20Image%202021-08-18%20at%2009.05.04.jpeg)
+- Absen 18-08-21![foto](https://user-images.githubusercontent.com/70625016/140742494-bbd987ee-a55a-4049-b352-2571d77a19a5.jpg)
